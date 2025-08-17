@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **sahan200317@gmail.com**
   
-- ⚡ Fun fact **Call me as ST**
+- ⚡ Fun fact **Call me as Sahan**
 
 </td>
 <td width="50%" align="center">
